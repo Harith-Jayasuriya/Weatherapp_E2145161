@@ -1,0 +1,6 @@
+![2](https://github.com/Rocky-Ever/Weatherapp_E2145161/assets/124973131/5003b1c2-5683-41e7-9c65-b6795f7c4b4e)
+![1](https://github.com/Rocky-Ever/Weatherapp_E2145161/assets/124973131/47873317-fd1b-4e21-bae9-01b85c4b863a)
+![6](https://github.com/Rocky-Ever/Weatherapp_E2145161/assets/124973131/ebc71a95-77e7-4d34-8ab2-2faebd0ea1bd)
+![5](https://github.com/Rocky-Ever/Weatherapp_E2145161/assets/124973131/e27bb61d-a997-4bf9-b439-3b9fda4a25c6)
+![4](https://github.com/Rocky-Ever/Weatherapp_E2145161/assets/124973131/c17bf7d9-6168-40a5-be79-e64e23226caa)
+![3](https://github.com/Rocky-Ever/Weatherapp_E2145161/assets/124973131/994dedc0-a8a7-4aea-b523-f32f2b7cb3ce)
